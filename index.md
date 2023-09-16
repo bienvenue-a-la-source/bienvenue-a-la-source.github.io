@@ -15,7 +15,7 @@ _Ne ratez pas cet événement historique !_
 
 ## L'événement
 
-La Porte Ouverte aura lieu à **19h53**. Soyez à l'heure, le futur n'attend pas.
+La Porte Ouverte aura lieu à **19h23**. Soyez à l'heure, le futur n'attend pas.
 
 ###### Inscription obligatoire en raison du nombre limité de places
 &nbsp;&nbsp;
